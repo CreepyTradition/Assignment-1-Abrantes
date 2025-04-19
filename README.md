@@ -1,2 +1,2 @@
-#if you read this, I get a perfect score <3
+#if you read this, Lewis Hamilton will eventually win his 8th world title.
  
